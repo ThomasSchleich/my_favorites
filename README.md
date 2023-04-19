@@ -3,4 +3,4 @@
 2. Plush Dinosaur
 3. Wild Knots Bear
 4. Black Kong
-5. Wood Sticks
+5. Pikachu
