@@ -1,4 +1,4 @@
-# top 5 toys of my dog
+# Top 5 toys of my dog
 1. Other Dogs
 2. Plush Dinosaur
 3. Wild Knots Bear
